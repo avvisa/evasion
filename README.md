@@ -1,3 +1,3 @@
-evasion bot, by me <3
+evasion bot <3
 
-enjoy!
+enjoy
